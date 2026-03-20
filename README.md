@@ -1,0 +1,57 @@
+# ReoNa – R.I.P.
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+なあ どうすりゃいいんだよ
+誰が好きで間違えるかよ
+正義のなすり合いさ
+誰かの正しさが
+別の正しさ 踏みつけては
+進め 進め 正邪(せいじゃ)の行進
+耳元で鳴り響く 消えないノイズ
+矛盾がギシギシ軋む 痛いや
+塞いでも鳴り響く 止まないノイズ
+でも進むしかない [なぁ]
+di li pa pa du pa pa
+di li pa pa du pa pa
+ああ 千切れたって もがれたって
+肺が潰れたって叫べ
+di li pa pa du pa pa
+di li pa pa du pa pa
+ああ 狂ってんだ 間違ってんだ
+全部 消えてしまえ
+rest in peace
+di li pa pa du pa pa
+di li pa pa du pa pa
+触れ合った指 爪を立てて
+握り合う手 潰し合って
+傷つけ合って 奪い合って
+何が救われたんだよ
+もしも神様がいるなら
+世界を洗い流して
+何も聞こえない場所へ
+乗せて 乗せて 方舟 [なぁ]
+di li pa pa du pa pa
+di li pa pa du pa pa
+ああ どうかしてしまいそうだ
+まともでいろ?そりゃ無理よ なあ
+di li pa pa du pa pa
+di li pa pa du pa pa
+狂ってんだ 間違ってんだ
+なあ 消したいんだろ なあ
+di li pa pa du pa pa
+di li pa pa du pa pa
+ああ 千切れたって もがれたって
+肺が潰れたって叫べ
+di li pa pa du pa pa
+di li pa pa du pa pa
+ああ 狂ってんだ もう 狂ってんだ
+全部 消えてしまえ
+rest in peace
+di li pa pa du pa pa
+di li pa pa du pa pa
+ああ 狂ってんだ もう 狂ってんだ
+rest in peace
+rest in peace
+```
